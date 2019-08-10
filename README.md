@@ -1,0 +1,2 @@
+# WestJackson
+From everyday life
